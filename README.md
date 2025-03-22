@@ -16,7 +16,7 @@ I am a Web Analytics professional with 8.5 years of experience in SEO, data anal
 
 ## Contact
 - **Email**: [vivek.kumarconnect@gmail.com](mailto:vivek.kumarconnect@gmail.com)
-- **LinkedIn**: [Your LinkedIn Profile](https://linkedin.com/in/your-linkedin-profile)
+- **LinkedIn**: [ LinkedIn Profile].(https://www.linkedin.com/in/vivekkumarlive/))
 - **Phone**: +91 9108646416
 - **Location**: Bangalore, IN
 
